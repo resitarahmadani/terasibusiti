@@ -1,0 +1,1 @@
+link profile dicoding ada di bagian Me, Terima Kasih
